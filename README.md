@@ -8,7 +8,6 @@
 
 ## 🌐 Официальный сайт Pinco Casino
 
-**Pinco
 | **Официальный сайт:** [**pinco-official.com**](https://clickprofitgo.com/GtO4uUhr/?subId1=333)  
 | **Рабочее зеркало** | [**pinco-mirror.com**](https://clickprofitgo.com/WItM91le/?subId1=Sng)  
 
